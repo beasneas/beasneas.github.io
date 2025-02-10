@@ -12,7 +12,7 @@ Amature Coder
 Cloud Infrastructure & cybersecurity  
 True Crime  
 Going out to the barn to ride my horse _Galander T_ <3  
-My rescue animals (3 cats & 2 dogs)
+My rescue animals (3 cats & 2 dogs)  
 Playing video games in spare time  
 Gardening...
 
