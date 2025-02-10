@@ -22,4 +22,4 @@ Gardening...
 
 
 #### Photo of T
-![T](https://prnt.sc/50RpBnCA4O5T)
+![T](241109_TKP_8770.jpg)
