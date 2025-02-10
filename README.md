@@ -21,5 +21,5 @@ Gardening...
 [My Instagram](https://www.instagram.com/beasturgeon/)
 
 
-#### Photo of T
+###### Photo of T & I in Aiken  
 ![T](241109_TKP_8770.jpg)
