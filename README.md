@@ -17,8 +17,8 @@ Playing video games in spare time
 Gardening...
 
 #### Websites I recommend
-[Best true crime podcast](https://www.swordandscale.com/listen)  
-[My Instagram](https://www.instagram.com/beasturgeon/)
+[Best true crime podcast](https://www.swordandscale.com/listen) - I listen to this podcast religiously, SO GOOD!   
+[My Instagram](https://www.instagram.com/beasturgeon/) - super interesting cool horse photos! 
 
 
 ###### Photo of T & I in Aiken  
